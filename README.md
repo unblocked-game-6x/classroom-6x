@@ -76,9 +76,33 @@ Classroom 6x is the perfect online destination for students seeking a blend of e
 
 [slope](https://www.ictnet.es/game/slope)
 
+[classroom 6x](https://www.ictnet.es/category/classroom-6x)
 
+[classroom 6x unblocked](https://www.ictnet.es/category/classroom-6x)
 
+[unblocked games 67](https://www.ictnet.es/category/unblocked-games-67)
 
+[sprunki unblocked](https://www.ictnet.es/game/sprunki)
+
+[sprunki](https://www.ictnet.es/game/sprunki)
+
+[polytrack unblocked](https://www.ictnet.es/game/polytrack)
+
+[polytrack](https://www.ictnet.es/game/polytrack)
+
+[basket random unblocked](https://www.ictnet.es/game/basket-random)
+
+[basket random](https://www.ictnet.es/game/basket-random)
+
+[monkey mart unblocked](https://www.ictnet.es/game/monkey-mart)
+
+[monkey mart](https://www.ictnet.es/game/monkey-mart)
+
+[minecraft unblocked](https://www.ictnet.es/category/minecraft)
+
+[super mario unblocked](https://www.ictnet.es/game/super-mario)
+
+[mario unblocked](https://www.ictnet.es/game/super-mario)
 
 # What Makes Classroom 6x Unique?
 Classroom 6x stands out by offering:
