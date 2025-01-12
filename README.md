@@ -46,6 +46,36 @@ Classroom 6x is the perfect online destination for students seeking a blend of e
 
 [survival race](https://www.ictnet.es/game/survival-race)
 
+[cookie clicker unblocked](https://www.ictnet.es/game/cookie-clicker)
+
+[cookie clicker](https://www.ictnet.es/game/cookie-clicker)
+
+[1v1.lol unblocked](https://www.ictnet.es/game/1v1-lol)
+
+[1v1.lol](https://www.ictnet.es/game/1v1-lol)
+
+[1v1 lol unblocked](https://www.ictnet.es/game/1v1-lol)
+
+[1v1 lol](https://www.ictnet.es/game/1v1-lol)
+
+[1v1](https://www.ictnet.es/game/1v1-lol)
+
+[slope 3 unblocked](https://www.ictnet.es/game/slope-3)
+
+[slope 3](https://www.ictnet.es/game/slope-3)
+
+[pixel shooter unblocked](https://www.ictnet.es/game/pixel-shooter)
+
+[pixel shooter](https://www.ictnet.es/game/pixel-shooter)  
+
+[block blast unblocked](https://www.ictnet.es/game/block-blast)
+
+[block blast](https://www.ictnet.es/game/block-blast)
+
+[slope unblocked](https://www.ictnet.es/game/slope)
+
+[slope](https://www.ictnet.es/game/slope)
+
 
 
 
