@@ -2,7 +2,7 @@
 
 Classroom 6x is the perfect online destination for students seeking a blend of entertainment and education. Designed as an ad-free gaming platform, Classroom 6x ensures uninterrupted fun while providing a safe and enjoyable environment for everyone.
 
-[https://www.ictnet.es/game/snow-rider-3d](https://www.ictnet.es/game/snow-rider-3d)
+[Unblocked Games](https://www.ictnet.es/game/snow-rider-3d)
 [fireboy and watergirl unblocked](https://www.ictnet.es/game/fireboy-and-watergirl)
 [snow rider 3d unblocked](https://www.ictnet.es/game/snow-rider-3d)
 [snow rider 3d](https://www.ictnet.es/game/snow-rider-3d)
