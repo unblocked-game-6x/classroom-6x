@@ -42,6 +42,10 @@ Classroom 6x is the perfect online destination for students seeking a blend of e
 
 [granny unblocked](https://www.ictnet.es/game/granny)
 
+[survival race unblocked](https://www.ictnet.es/game/survival-race)
+
+[survival race](https://www.ictnet.es/game/survival-race)
+
 
 
 
